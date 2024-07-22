@@ -12,4 +12,5 @@
 
 ## Author
 
-- [naocha@twitter](https://x.com/Sp1atoon3)
+- [naocha@twitter](https://x.com/na0chaa)
+
